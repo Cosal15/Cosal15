@@ -1,10 +1,3 @@
-- 👋 Hi, I’m @Cosal15
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me "DONT"
+Ill link my shits later.
 
-<!---
-Cosal15/Cosal15 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+@OSSDAO-ORG•AIRDROP-0x1D047405ecC1D408784955388d245d544883272d
